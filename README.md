@@ -1,0 +1,1 @@
+# SQL-2.-Ve-3.-Hafta-dev
